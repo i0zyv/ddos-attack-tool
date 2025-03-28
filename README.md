@@ -1,1 +1,4 @@
-# s
+Contact: 
+
+discord: @divjs
+telegram: @divJS
